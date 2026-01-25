@@ -153,4 +153,4 @@ Your continued use of the app after changes indicates acceptance of the updated 
 
 If you have any questions or concerns about this Privacy Policy or your data, please contact us:
 
-Email: support@dosemate.app
+Email: sega4revenge@gmail.com
